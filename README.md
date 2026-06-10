@@ -1,1 +1,1 @@
-# elden ring merece o goty?
+# curiosidades sobre pokemon emerald
